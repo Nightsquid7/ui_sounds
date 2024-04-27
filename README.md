@@ -6,8 +6,6 @@ https://github.com/Nightsquid7/ui_sounds/assets/25173345/90267613-a02b-4508-9aa7
 https://github.com/Nightsquid7/ui_sounds/assets/25173345/ee8b9b6c-96ec-43af-8f55-7d73bae4ddb8
 
 
-https://github.com/Nightsquid7/ui_sounds/assets/25173345/a3f9249c-8288-4c54-bc2d-2bb679c009ac
-
 
 https://github.com/Nightsquid7/ui_sounds/assets/25173345/5e08fbee-ffa1-4f44-bc6a-f2b6dd685eaf
 
